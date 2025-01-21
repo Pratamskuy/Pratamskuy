@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning javascript
 - 💞️ I’m looking to collaborate on -
 - 📫 How to reach me: instagram : dafitpratamaa_ , email: davidismu126@gmail.com
-- 😄 Pronouns: ni/ger
+- 😄 Pronouns: BUNG
 - ⚡ Fun fact: im in love with kaori miyazono
 
 <!---
